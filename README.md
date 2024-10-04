@@ -1,1 +1,2 @@
 # ejempploClaseB
+para empezar kakakakallkeckelñklñcmñklsmcskncjk
